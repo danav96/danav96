@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @danav96
+- 👋 Hi, I’m Prashant joshi
 - 👀 I’m interested in codeing and gaming
 - 🌱 I’m currently learning about more skills
 - 💞️ I’m looking to get a better opportunity
